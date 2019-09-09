@@ -20,3 +20,32 @@
     stay in delusion)
 * Need others to set standards, and challenge beliefs
     * Look into each others' souls
+
+# Lec 5: 9/9/19
+* Politics = necessary evil
+* Greeks believed majority election = tyranny of majority over minority
+    * Everyone should participate in politics
+    * Higher positions = shorter period of tenancy
+        * Highest positions = single day
+        * More power → more distribution
+    * Democracy should engage everybody
+    * Possible for human beings to rule themselves (instead of under monarchy,
+        etc.)
+        * Collaborative free society
+* Plato *Nichomachean Ethics*
+    * Ethics part of politics
+* Ethical concerns depend on structure of society/civilization
+
+## Separation of Social Spheres
+* French Revolution → separation of church & state → U.S. Constitution
+* Individualism → no such thing as society, only individuals count/matter
+
+* Society & politics much more problematic
+
+* *Alcibiades* = deep political treatise
+    * What does it take to be a political leader?
+
+* Plato = critic of democratic society in Athens for rest of his life/writings
+    (b/c Socrates prosecuted)
+
+* Independence/freedom/democracy of Athens lost after Alexander the Great
