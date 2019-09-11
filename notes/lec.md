@@ -49,3 +49,20 @@
     (b/c Socrates prosecuted)
 
 * Independence/freedom/democracy of Athens lost after Alexander the Great
+
+# Lec 6: 9/11/19
+* Socrates/Plato laid foundations of Western thought → Confucius is both
+    Socrates/Plato
+* Confucius defines parameters of Chinese thought (even more so than
+    Socrates/Plato do for Western thought)
+* Plato/Socrates = argumentative philosophers (challenging others' beliefs)
+* Confucius *Analects* = expository philosophy
+    * Exposition of viewpoint with reasons/arguments behind it (but arguments
+        not present in text as they would be in Plato/Socrates writing)
+* Socrates/Plato = more abstract view of ethics
+* Confucius = more historical perspective of ethics
+* Communists believed Confucianism led to stagnation of China
+* Harmony central to Confucian thought
+* Harmony must follow ritual
+    * Need established practices/rules (common understanding) to have harmony
+* Ritual has social dimension
