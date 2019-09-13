@@ -66,3 +66,33 @@
 * Harmony must follow ritual
     * Need established practices/rules (common understanding) to have harmony
 * Ritual has social dimension
+
+# Lec 7: 9/13/19
+* Organize by rituals/rites → harmony
+* Harmony require understanding how one should do things
+    * Need in relation to other people
+    * Requires shared set of common accustoms (ritual)
+* Harmony not always best idea
+* Conservatism w/ respect to human form of life
+* Confucius aware that change is necessary as well
+* Must have harmony within self first
+* Indonesia = matriarchy
+
+## Junzi
+* Self-understanding has to come from self
+
+* Rule based ethics not enough, has to come out naturally
+* "Holistic" ethics of the whole person
+* Humane person/humanity
+* For Socrates/Plato/Western → main focus = justice
+* For Confucius → humanity
+* Need compassion/understanding/forgivingness with others, more important virtues than
+    justice
+
+## 2. Family
+* Musical instruments → harmony
+* Tight family bonds can lead to social corruption
+
+## 3. Friendship
+* Open up to other ways of thinking, enable/open more broad-mindedness
+* Matteo Ricci translates between Western and Chinese culture
