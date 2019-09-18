@@ -96,3 +96,39 @@
 ## 3. Friendship
 * Open up to other ways of thinking, enable/open more broad-mindedness
 * Matteo Ricci translates between Western and Chinese culture
+
+# Lec 9: 9/18/19
+## Aristotle
+* Embodied being
+* *Nichomachean Ethics* → inconsistencies from editing over years
+
+### Agreement Between Aristotle & Confucius
+* Look at individual actions in context of whole (ethical "holism")
+
+### Differences ""
+* Confucius: Human good (humanity) = many different things
+* Aristotle = single unitary happiness
+
+### Means/Ends
+* Aim at happiness for its own sake (ends)
+
+### Functionalist View
+
+### Eudaimonía
+* Single life condition
+* Both subjective & External objective condition
+
+### Family vs. Polis
+* Aristotle → need entire polis to live a full life
+* Political communtiy = framework for individual/ethical
+
+### 3 Parts of Life
+* Linguistic capacity
+* Highest aspect of existence = contemplation of existence
+
+### Moral luck
+* No full control over circumstances in life
+* Recognize moral luckiness of others → achieve full human happiness
+
+### Concluding Notes
+* Happiness = objective condition of human circumstances
