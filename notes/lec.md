@@ -69,7 +69,7 @@
 
 # Lec 7: 9/13/19
 * Organize by rituals/rites → harmony
-* Harmony require understanding how one should do things
+* Harmony requires understanding how one should do things
     * Need in relation to other people
     * Requires shared set of common accustoms (ritual)
 * Harmony not always best idea
