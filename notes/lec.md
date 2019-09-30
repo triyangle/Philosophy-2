@@ -132,3 +132,44 @@
 
 ### Concluding Notes
 * Happiness = objective condition of human circumstances
+
+# Lec : 9/30/19
+* Jewish exodus = time of Moses
+* *lex talionis* = law of retribution
+    * Justice as balance/equity/equality
+* Mosaic law has moral and contractual aspect to it
+
+## Rule Based Systems
+* Divine authorities vs authorities of the state
+
+### Why do we have social rules, secular and moral law?
+* Allows new, more complex forms of cooperation
+* Writing makes rules visible and stabilizes them
+    * Writing and rule-following correlated
+* Writing, rule-following, stabilizing, setting up empires/kingdoms all related
+
+## Kant and the autonomy of morals
+* Rethinking idea of moral code
+* Rule-based ethics
+* Rules can come from beyond outside, "moral law within me"
+* Observation/experience insufficient to base moral law upon
+    * Experience not universal, but moral laws are
+* Not pluralist, only single universal moral law
+* Universal laws should hold for all rational beings without exception → can't
+    be based on just human nature
+* *Groundwork of the Metaphysics of Morals*
+    * Arguing against Aristotle:
+        * Happiness irrelevant, only relevant to how we as humans are
+        * Need to set aside to figure out universal moral law
+        * Well-being different from well-doing
+            * Good life achieved my immoral ends
+    * Arguing against divine authority
+        * Need standard of morality to judge perfectness/morality of God
+            * Israelites needed notion of moral good in order to judge divine
+                authority of God
+            * Existence of moral law underwrites belief in God 
+                * Notion of God arises from pre-existing moral notions
+        * If no previous standard of morality, then law imposed on people because of supreme being is not moral
+    * Heteronomy = rule by outsider
+    * Question of why in response to order to follow moral law → recognition
+        of authority of moral law comes from within
