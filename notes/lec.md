@@ -173,3 +173,44 @@
     * Heteronomy = rule by outsider
     * Question of why in response to order to follow moral law → recognition
         of authority of moral law comes from within
+
+# 10/2/19
+## Modern Ethics
+* Notions of duty/obligation more Protestant than Judeo-Christian
+* Distinct individual separate from society
+* Confucian family → religious community of Israelites
+* Ethics originating from individual, but with universal validity
+
+## Purity of the Moral Law
+* Ethics → obligation
+
+### *a priori*
+* Independent of experience/observation
+
+### Empricisim
+* All knowledge from experience, etc.
+    * All knowledge is *a posteriori*
+
+* Must do good out of duty/obligation → moral action
+    * Independent of feelings
+* Connections between causes/effects
+* Universal claims cannot be derived from observations
+
+* Perception can be wrong sometimes, reason/logos always true
+    * - Some Greek philosopher
+* "Logos" has multiplicity of meanings (word, sentence, etc.)
+    * Language central to meaning
+* Thought is never pure → always affected by something
+* Need to think abstracted from factors as basis for morality
+
+* Hegel: Can't get substantive moral conclusions out of nothing (pure formal
+    reasoning)
+
+# Need for an Ultimate Moral Law
+* Can't be satisfied w/ traditional way moral laws are expressed
+* Need systematic, quasi-scientific ethics
+* Axiomatic assumptions → derive things systematically
+
+* Concrete moral rules regulate actions (first order moral principles)
+* Higher order moral principle tells us how to choose first order moral
+    principles (low order moral principles, maxims) → categorical imperative
