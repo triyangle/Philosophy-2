@@ -214,3 +214,49 @@
 * Concrete moral rules regulate actions (first order moral principles)
 * Higher order moral principle tells us how to choose first order moral
     principles (low order moral principles, maxims) → categorical imperative
+
+# 10/7/19
+* Kant → sentiment is irrelevant
+
+## Buddha
+* First represented via abstract structures
+* Zen Buddhism vs Buddhism w/ gods
+
+## Siddhartha Gautama
+* **Vedic religion:** fire worshipped
+    * Temple built on spot of fire ritual, then destroyed
+* **Yogic asceticism:** rejecting world, devotion to meditation
+
+### Enlightenment
+* Universe = cyclic
+    * Suffering inevitable b/c it is part of cycle
+        * Life in vain
+    * Desires bind us to world and produce suffering
+        * Desires never completely satisfied
+    * Overcome/escape suffering → overcome desires
+
+### The Middle Way
+* Pursuit of pain/hardship = yogic ascetic
+* **Nirvana:** End goal of human life = achieve nothingness
+
+* Buddha died from eating spoiled pork (was vegetarian to respect life but would eat meat if
+    offered)
+
+* Need compassion for others and ourselves
+
+### Questions
+* Moral discrimination absent from Buddhism
+* Universal compassion not enough → passive attitude
+    * Ethics that doesn't call for action
+* Based on personal individual vision, basing common general ethics on personal
+    viewpoint?
+
+## Tentative Typology of Ethics
+* **Nietzsche:** Layout different viewpoints together into a typology of ethics
+* Mosaic/Kantian codes based on legalistic thinking of ancient Middle-Eastern
+    courts
+* Feeling/sentiment based → right attitude/way to relate to others,
+    interpersonal
+
+* Need rational criterion to determine when feelings are appropriate
+* Reason to incorporate feelings into ethical thinking → utilitarianism
