@@ -29,3 +29,11 @@
         2. Sensibility, sentiments/feelings/desires/appetites/inclinations
             * Up to chance, contingent
 * No moral worth $\not=$ immoral/wrong
+
+# 10/14/19
+## Exam
+* 1 Q must answer, 3 Q options
+* Mosaic, Kant (rationality), Mill, Siddartha = compassion
+* If introduce concept $\implies$ define it
+    * Saying what it means, why it matters
+* If you make a claim $\implies$ give a reason
