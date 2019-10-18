@@ -167,7 +167,7 @@
         * Need standard of morality to judge perfectness/morality of God
             * Israelites needed notion of moral good in order to judge divine
                 authority of God
-            * Existence of moral law underwrites belief in God 
+            * Existence of moral law underwrites belief in God
                 * Notion of God arises from pre-existing moral notions
         * If no previous standard of morality, then law imposed on people because of supreme being is not moral
     * Heteronomy = rule by outsider
@@ -197,7 +197,7 @@
 * Universal claims cannot be derived from observations
 
 * Perception can be wrong sometimes, reason/logos always true
-    * - Some Greek philosopher
+    * –Some Greek philosopher
 * "Logos" has multiplicity of meanings (word, sentence, etc.)
     * Language central to meaning
 * Thought is never pure → always affected by something
