@@ -260,3 +260,30 @@
 
 * Need rational criterion to determine when feelings are appropriate
 * Reason to incorporate feelings into ethical thinking → utilitarianism
+
+# 10/21/19
+* State we belong to → involuntary community
+    * Does modern state consist of contract (like voluntary communities, e.g.
+        clubs)?
+        * Hans: No, state doesn't originate w/ a contract (not corporation)
+
+* Common good not fixed, decided on in different ways under different
+    conditions
+    * Political process/struggle = process of choosing/deciding common good
+        * Pluralistic view of common good
+            * Happiness = multi-formed, pluralistic
+                * Consists of many facets/things
+
+* Tradeoff between freedom and security, oppositional relations w/ each other
+* Socialist = maintain society's social structure (more conservative)
+
+* Democritus = materialist
+
+## 7 Takeaways
+* Plato: politics = product of god-forsaken world *The Politician*
+* Humans deficient creatures → need to make up with artificial culture, etc.
+* Democracy always an aspiration, never fully there (don't always hear voice of
+    everyone)
+
+* Plato: reject equality, experts determine much of politics/society
+    * More Platonic than Protagorean state
