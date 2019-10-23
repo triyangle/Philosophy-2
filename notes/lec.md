@@ -287,3 +287,84 @@
 
 * Plato: reject equality, experts determine much of politics/society
     * More Platonic than Protagorean state
+
+# 10/23/19
+## Protagoras
+* First to theorize about democracy (why is it the most appropriate form of
+    gov't)
+* Democracy most easiest/fundamental conceptualization of politics
+    * Everyone comes together to decide how to live
+    * **Marx:** All gov't is voluntary cooperation at core
+
+* Democracy not possible in mass scale
+
+* Democracy = ideal, always aiming at
+
+* Democratic politics requires education
+    * Keep democracy → ensure broadest range of education/training possible
+        * Open up people to world/realities around them
+        * Can't participate in democratic decision making if ppl are uninformed
+            * *Washington Post:* Ppl ignorant of Syria's locations wanted to bomb it more
+
+## Plato (rule of experts)
+* Only few are qualified to go through necessary training and act/make
+    political decisions
+* Inequality = basic fact of life
+    * Allegory of the cave
+* Philosophers only ones qualified to rule state (only ones outside of cave)
+* Trained by him/philosophers
+
+* Oligarchs = plutocrats
+* Democracy w/out laws too incompetent to do anything → won't do any harm
+* Rule by philosopher kings = best
+
+## Aristotle and "republican" Gov't
+* Humans political by nature
+    * Human nature = necessary to act politically
+* Gregarious/social animals already political
+    * Social interaction = characteristic of politics
+
+* Humans also deliberate and decide what to do
+    * Bees always go for flowers (can't deliberate about choices)
+    * Process of choice-making/deliberation = human characteristic of politics
+
+* **Aristotle:** Some ppl naturally slaves (better of slaves)
+* Slavery in U.S. justified via Old Testament (Mosaic Law) and Aristotle
+* Last relationship = friendship, hold cities together
+    * Underlies social/political relationship
+    * Voluntary/chosen, allows for equality → domain for politics
+        * Respect/recognition for each other, origins/roots of politics
+        * Politics → capable of overcoming basic relationships of inequality
+
+* Oligarchy → capitalism
+* **Aristotle:** Best form of gov't = politeia → republic
+
+* Aristotle critical of radical democracy and Plato
+* Philosophers don't know how to govern state
+
+* Polis = city-state
+    * All human life can take place
+    * Theaters/temples/grand city
+    * Too large, bonds of affection/friendship loosened
+    * Institution of moderate size
+    * Generous, but temperate (live well but not too well)
+
+* Household serves purposes of reproduction/survival, immediate practical needs
+* Village = long-term economic/other needs
+    * Not only concerned w/ survival, but also living well
+
+* Politics → employ human reason to deliberate what is good/etc.
+
+* Political community exists by nature
+    * Individuals secondary to political community
+    * Politics has potential to make us who we are
+        * Person who made it is human-kind's greatest benefactor
+
+* Politics → human nature → based on animal nature
+
+* Overcome innate hostility and drive for aggression (biological determinants), mitigate/control
+    * Don't need to go to extremes, learn to acquire habits/virtues → make
+        social living possible
+
+* **Arendt:** Politics can make us more fully human → not grounded in human
+    nature
