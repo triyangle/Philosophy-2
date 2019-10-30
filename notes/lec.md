@@ -368,3 +368,59 @@
 
 * **Arendt:** Politics can make us more fully human → not grounded in human
     nature
+
+# 10/30/19
+## Aristotle
+* Democracy not best form, but republic
+    * Only the qualified few should rule
+* Christianity = conflict between new religion and previous political order →
+    separation of church and state
+    * Christians develop own welfare system, etc. churches, bishops
+        * Separate from Roman empire
+        * Separation of 2 worlds
+        * Distinctly European/Western
+* **Individualism:** What really matters is self → separation from society/self
+    * Society/state = obstacle to individual & pursuit of self
+
+## Arendt
+* **Arendt:** Humanity can destroy itself via politics
+
+## The *Leviathan*
+* **Hobbes:** State → machine
+
+* Diffidence → fear
+    * Always in fear of others
+    * Gang warfare
+* Glory → pursuit of victory
+
+* Industry = economic development
+
+* **Contract theory of the state:** Give up liberties to ruler to
+    control/maintain order
+    * In order to make contract need shared language/understanding, state of
+        trust, but state
+        of nature doesn't allow this
+
+* Contract = post-hoc event
+* Political order = based/founded on violence
+
+* Violence remains in political order
+* State emerges as an act of violence in order to escape violence
+    * Threat of violence always present even in state
+
+## Weber
+* State is system of violence/force
+* Maintains claim to monopoly of legitimate use of violence
+    * Prohibits individual use of violence against each other
+    * State uses violence to enforce rules/punishment
+
+* International relations → nations still treat each other like wolves
+
+## Political Disillusionment
+* Political power = oppression
+
+## Modern Liberalism
+* Distrust of political order → minimal state needed, maximize individual
+    liberties/freedoms
+
+* Libertarianism = more self-centered individualistic society
