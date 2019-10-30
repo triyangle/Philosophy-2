@@ -387,6 +387,8 @@
 
 ## The *Leviathan*
 * **Hobbes:** State → machine
+    * Hobbes lived in time of war → maybe predisposed to have more negative
+        view of state/conflict/human nature
 
 * Diffidence → fear
     * Always in fear of others
