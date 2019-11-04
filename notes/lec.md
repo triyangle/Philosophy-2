@@ -426,3 +426,56 @@
     liberties/freedoms
 
 * Libertarianism = more self-centered individualistic society
+
+# 11/4/19
+* John Stuart Mill → individualistic view
+* Extreme individualism or community both potentially problematic
+
+## Protagoras
+* aidōs, sense of awe
+
+* Lex talionis = conceptualization of justice
+    * Restore balance
+
+### Justice vs Fairness
+* Fairness = more local, colloquial concept
+
+## Plato
+* Inegalitarian
+* Democracy wrong b/c treats everyone as equal (but ppl are not equal)
+
+## Aristotle
+* Also not an egalitarian
+
+* Proportional rights relative to position in society
+
+* Equity/justice can have unequal treatment under certain conditions (e.g.
+    slaves)
+
+* Social/political/cultural upheaval 1968 → question of relevance for
+    school topics (i.e. philosophy)
+
+* Communitarian → socialism
+
+## Rawls
+* Conception of politics focused entirely on only justice (as opposed to
+    friendship, etc. from before)
+* Social/political existence = part of good life, fundamental issue = good life
+
+* Need mechanism to live together in presence of opposing or no common values
+    * Agreement in disagreement
+* Splits apart individual justice and justice of social institutions
+    * Privatize individual justice, maintain social justice
+* Fairness = social issue
+* Rawls → explain justice in terms of fairness
+* Rawls social justice → liberalism allows some degree of inequality, similar to Plato/Aristotle
+    * Justice not complete equality, allows some degree of inequality
+
+* Aristotle = absolute sense of justice/fairness
+* Equity = conditional equality
+    * Recognized by Plato/Aristotle, not equality
+
+* Liberal society can't coexist with unreasonable views
+    * Adapt, find way to live together despite disagreements
+* No answer to plurality of morality that exists in modern society (ppl too
+    different)
