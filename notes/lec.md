@@ -479,3 +479,21 @@
     * Adapt, find way to live together despite disagreements
 * No answer to plurality of morality that exists in modern society (ppl too
     different)
+
+# 11/15/19
+* The Way = the Dao
+* Withdrawing from society, self-effacement
+* Confucius: look at past to determine human nature
+* Aristotle: experimental, human psychology, animal behavior
+* Laotze: Way = way of the universe, reality of world beyond human
+    comprehension
+    * Rejects Confucian concern w/ naming
+    * Looks out at cosmos beyond human understanding
+    * Confucianism = beginning of disorder
+* Daoist philosophy: think about self in relation to cosmos
+    * Philosophy of solely nature (not society/human nature)
+* Daoist landscape painting
+    * Humans embedded in cosmos
+* True way = nameless, mysticism (way of relating to world that takes world to
+    be incomprehensible)
+* Undermining orderly way of thinking (e.g. Confucian)
