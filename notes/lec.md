@@ -497,3 +497,21 @@
 * True way = nameless, mysticism (way of relating to world that takes world to
     be incomprehensible)
 * Undermining orderly way of thinking (e.g. Confucian)
+
+# 11/18/19
+* Zhuangzi butterfly doubt → somewhat like Socrates knowing that you don't know
+    * Western descriptions of doubt also connected to sleep/dreaming (Descartes)
+        * Problem of existence of external world
+* Socrates: we can know when we don't know
+* Reality is not the reality of distinctions ("The Way has never known
+    boundaries")
+* Nothing is not acceptable → accept everything
+* Confucius = political
+    * Ruler must embody gentleman ideal → state becomes virtuous to follow
+* Confucian problem = emphasis on usual petty human concerns
+* Accept things for what they, don't take too much
+* Confucius to need develop/make self
+* Zhuangzi: self-effacing
+* Ruling important, only when there is ruling to do
+* Road human made, limited significance
+* Way always there, the world
