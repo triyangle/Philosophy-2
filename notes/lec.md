@@ -515,3 +515,31 @@
 * Ruling important, only when there is ruling to do
 * Road human made, limited significance
 * Way always there, the world
+
+# 11/25/19
+* *Meditations* – Marcus Aurelius stoic philosopher
+* Interrogation of soul fostered via certain systematic practices
+    * *Stoics:* systematic self-examination
+* Christian naming tradition after Saints → role model
+* Stoic tradition has large influence on Christian tradition
+    * Christianity = melding of Greek philosophical thinking w/ bible
+* Ignatius Loyola, Catholicism
+
+## Meditation 1: On Other Lives
+* Others are essential models for own life
+* Also important to find people to avoid
+
+## Meditation 2: On time
+* River always changing, self always changing
+* Stoics didn't believe in creation → believed world/god always existed, identify
+    world w/ god, unchanging
+    * Regular eternal cyclical universe
+
+## Meditation 3: On change
+* Everything is the seed of something else
+* Everything changes into everything else
+* Nature only exists in change
+* Everything undergoes change → must accept change within self too
+
+## Meditation 4: On Death
+* Death → essential aspect of ethical life
