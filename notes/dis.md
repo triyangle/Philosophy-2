@@ -37,3 +37,13 @@
 * If introduce concept $\implies$ define it
     * Saying what it means, why it matters
 * If you make a claim $\implies$ give a reason
+
+# 11/18/19
+* Self: self-knowledge
+* Other: moral principle
+* Community: nature of politics
+
+* Mill/Kant: individual actions
+* Confucius/Aristotle: ways of living
+* Zhuangzi: ethics of inaction, human-cosmos relation, boundary-less,
+    integrating differences, illusion (divisions)/reality
