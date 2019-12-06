@@ -543,3 +543,12 @@
 
 ## Meditation 4: On Death
 * Death → essential aspect of ethical life
+
+# 12/6/19
+* Nietzsche = energist not atomist
+* Life-denying ethics
+    * Kantian ethics → value values more then own lives
+    * Christianity
+    * Pessimism, Buddhism
+* Nobility = internal quality to be developed
+* Christian God = one embodiment of highest value

@@ -47,3 +47,26 @@
 * Confucius/Aristotle: ways of living
 * Zhuangzi: ethics of inaction, human-cosmos relation, boundary-less,
     integrating differences, illusion (divisions)/reality
+
+# 11/25/19
+* *Causal determinism:* Things predetermined → problem for moral philosophy, do
+    people really have a choice (hold people responsible)?
+
+## Final
+1. Current material (Zhuangzi, Marcus Aurelius, Nietzsche), 3 qs answer 1
+2. Sem. material, answer 1
+
+# 12/2/19
+* *M.A.:* "Fight to become the person philosophy tried to make you"
+    * **Rationalism:** Order that can be known
+        * We have place in that order
+* **Mysticism:** Intuition/feeling
+
+# 12/6/19
+* Nietzsche = energist not atomist
+* Life-denying ethics
+    * Kantian ethics → value values more then own lives
+    * Christianity
+    * Pessimism, Buddhism
+* Nobility = internal quality to be developed
+* Christian God = one embodiment of highest value
