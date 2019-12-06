@@ -61,12 +61,3 @@
     * **Rationalism:** Order that can be known
         * We have place in that order
 * **Mysticism:** Intuition/feeling
-
-# 12/6/19
-* Nietzsche = energist not atomist
-* Life-denying ethics
-    * Kantian ethics → value values more then own lives
-    * Christianity
-    * Pessimism, Buddhism
-* Nobility = internal quality to be developed
-* Christian God = one embodiment of highest value
