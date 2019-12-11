@@ -552,3 +552,9 @@
     * Pessimism, Buddhism
 * Nobility = internal quality to be developed
 * Christian God = one embodiment of highest value
+
+# 12/11/19
+* First prompt = comparative essay on Zhuangzi, Marcus Aurelius, Nietzsche and
+    conception of nature and how it bears on their ethical thinking
+* Second prompt = Aristotle, Confucius, Kant, Mill
+* Third prompt = what you think is most important aspect of class
